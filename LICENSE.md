@@ -1,4 +1,4 @@
-#  
+#  VIP plants vs brainrots script é o melhor plants vs brainrots script com ESP e sem colisão. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
